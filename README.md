@@ -1,0 +1,1 @@
+# adaptivnaya-verstka_KT3
